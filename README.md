@@ -2,5 +2,5 @@
                         A passionate IT student from Tunisia
 📫 How to reach me molkakhalifa127@gmail.com
 
-Languages and Tools:
+
 
